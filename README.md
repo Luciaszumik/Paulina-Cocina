@@ -1,1 +1,1 @@
-# Paulina-Cocina
+# PaulinaCocina
